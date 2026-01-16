@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-UXMJ671203HCCCNR03
+UXMJ671203HCCCNR03
